@@ -41,7 +41,7 @@
 
 ---
 **For Any Clarifications:**  
-Please contact the organizing team at [Insert Contact Email/Number].
+Please contact the organizing team at [iedcsummit@lbscek.ac.in].
 
 ---
 
